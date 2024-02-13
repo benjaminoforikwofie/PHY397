@@ -5,7 +5,7 @@ David Ayamba
 
 Moses Kukubor
 
-Benjamin Ofori
+Benjamin Ofori Kwofie
 
 Joshua Odartei
 
